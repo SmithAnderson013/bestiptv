@@ -33,7 +33,7 @@ When choosing an IPTV service, consider these factors:
 
 ---
 
-![Banner](bestiptvservices.jpg)
+![Banner](bestiptvservices.png)
 
 ## 📺 The 14 Best IPTV Providers for 2025
 
